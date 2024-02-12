@@ -4,7 +4,7 @@
 2. 37 лет
 3. Работаю бухгалтером
    
-![фото](https://github.com/Dolgova0101/My-profile/blob/main/Img/2023-12-26%2010-57-37.JPG)
+![фото](https://github.com/Dolgova0101/My-profile/blob/main/Img/2023-09-01%2012-40-20.JPG)
 
 ## Мои контакты 
    
