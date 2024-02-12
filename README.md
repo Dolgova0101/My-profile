@@ -4,7 +4,7 @@
 2. 37 лет
 3. Работаю бухгалтером
    
-![](https://drive.google.com/file/d/1in7AFcKfAtbpSbLTdBplhoR5zA6JfeDA/view?usp=sharing)
+![фото](https://drive.google.com/file/d/1in7AFcKfAtbpSbLTdBplhoR5zA6JfeDA/view?usp=sharing)
 
 ## Мои контакты 
    
