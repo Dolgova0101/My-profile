@@ -4,7 +4,7 @@
 2. 37 лет
 3. Работаю бухгалтером
    
-[](https://drive.google.com/drive/home)
+![](https://drive.google.com/drive/home)
 
 ## Мои контакты 
    
